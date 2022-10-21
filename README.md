@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @selinamariia
+- 📫 You can reach me at https://www.linkedin.com/in/sbuc/
